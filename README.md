@@ -9,3 +9,6 @@ Info. of ronaldo and his greatness.
 
 # Why Messi is world best footballer?
 Info. of Messi and his greatness.
+
+# Comparison chart.
+Ronaldo and messi
