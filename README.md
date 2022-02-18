@@ -12,3 +12,6 @@ Info. of Messi and his greatness.
 
 # Comparison chart.
 Ronaldo and messi
+
+# who will next world cup?
+both player debate.
